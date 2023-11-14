@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Dev julioHenriqu3😁
+## Bem-vindo(a) ao perfil do Dev juliohenriqu3😁
 
  <div>
    <a href="https://github.com/julioHenriqu3">
